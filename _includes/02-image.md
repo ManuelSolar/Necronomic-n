@@ -1,1 +1,1 @@
-![image sonic](https://aminoapps.com/c/momos_memes/page/blog/sonic/7JM4_GrsPu4BKw08Gl8ennodzYxKQXKBxw)
+![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
